@@ -1,6 +1,7 @@
 
 
 Privacy Policy for Ict Point by Shahed Sir
+
 Privacy Policy
 
 Last updated: October 25, 2024
